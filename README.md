@@ -4,7 +4,7 @@
 🔭 Soy un apasionado Desarrollador Web Full Stack Junior de 22 años, con sede en Bogotá, Colombia. Me considero un entusiasta de la tecnología, los videojuegos, la música y el deporte. Estas pasiones no solo han enriquecido mi vida, sino que también han influido en mi enfoque creativo y versátil en el emocionante mundo de la programación.  
   
 
-🌱 Estoy siempre emocionado por nuevas oportunidades y proyectos emocionantes. Si estás buscando a alguien que combine habilidades técnicas con pasión y creatividad, ¡no dudes en contactarme! Estoy disponible para colaboraciones, proyectos y oportunidades de aprendizaje.  
+🌱 Estoy siempre emocionado por nuevas oportunidades y proyectos innovadores. Si estás buscando a alguien que combine habilidades técnicas con pasión y creatividad, ¡no dudes en contactarme! Estoy disponible para colaboraciones, proyectos y oportunidades de aprendizaje.  
   
 
 <br/>  
